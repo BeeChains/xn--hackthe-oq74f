@@ -6,7 +6,7 @@ https://soundcloud.com/likewisdom/rainbowraindrops)!
 
 
 
-
+Thanks To AgentSmith for the awesome Handshake logo
 ![image](https://user-images.githubusercontent.com/37987346/98903773-42363b00-2486-11eb-8172-12866363dbdd.png)
 
 [Rainbow Bridge](https://near.org/rainbow/)
