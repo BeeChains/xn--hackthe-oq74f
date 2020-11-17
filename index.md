@@ -1,6 +1,6 @@
 ## hackthe🌈
 
-Way to go you finally made it! Here here lets [Handshake](https://handshake.org/) on the regular [NameBase](https://namebase.io/). Welcome to the other side...Now You Are The Gold, remember that YOU ARE DIVINE.
+Way to go you finally made it! Here here lets [Handshake](https://handshake.org/) on the regular [NameBase](https://namebase.io/). Welcome to the other side...Now, You Are The Gold! Remember, YOU ARE THE ONE!
 - but you should see the [WebSecuritySpecialist/](http://admin.websecurityspecialist/) to continue. Over the rainbow...jammin [🌈raindrops/](
 https://soundcloud.com/likewisdom/rainbowraindrops)!
 
